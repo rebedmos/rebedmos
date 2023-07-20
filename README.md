@@ -7,7 +7,6 @@ Além destas experiências profissinais também sou professor de exatas e de tec
 👀 Posso ser encontrado nas seguintes redes:
 - LinkedIn: https://www.linkedin.com/in/renato-bednarski-ramos/
 - Instagram: https://www.instagram.com/renato.bedmos/
-- Facebook: https://www.facebook.com/rebedmos/
 - E-mail: ramos.renato@protonmail.com
 
 <!---
